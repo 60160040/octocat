@@ -1,4 +1,4 @@
-Bello, Tatata bala tu!
+Blink Jisooyaaaaaa!!!! 
 Sii,bananananana.
 Sa, I will start to use git and create dev3 branch.
 
