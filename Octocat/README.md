@@ -1,3 +1,3 @@
-Bee Do Bee Do Bee Do!
+Blink Jisooyaaaaaaaa!!!! 
 Sii,bananananana.
 Sa, I will start to use git and create dev3 branch.
